@@ -4,4 +4,4 @@
 
 ## Ending
 
-You better hire me, motherfulckers!
+You better hire me, nice people you are!
