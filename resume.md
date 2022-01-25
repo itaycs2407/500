@@ -4,4 +4,4 @@
 
 ## Ending
 
-You better hire me, nice people you are!
+You better hire me, Still Motherfuckers!
